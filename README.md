@@ -19,3 +19,4 @@ big temp
 niver
 sdf 
 nice
+abriet mach frei
