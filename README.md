@@ -9,19 +9,4 @@ ionj
 Big Temp
 nice enr
 i WILL DELETE U SOON
-argh
-ahhhhh
-arrrgh
-yert
-byew
-yar
-big temp
-niver
-sdf 
-nice
-abriet mach frei
-5y3ue
-sbfH
-targ
-eeeeeeeee
 
