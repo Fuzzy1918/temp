@@ -4,5 +4,3 @@ ping
 bang
 bong
 wvoop
-ruuands
-ncie
