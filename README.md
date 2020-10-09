@@ -1,5 +1,3 @@
 boop
 bop
-ping
-bang
 
